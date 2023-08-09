@@ -27,7 +27,7 @@
 
 ##
 
-### Gosto muito de tecnologia, é amo programar, jogar, editar, e melhor cada vez mais meu conhecimentos. 🎶
+### Gosto muito de tecnologia, é amo programar, jogar, editar, e melhorar cada vez mais meus conhecimentos. 🎶
 
 ## Ultimos Projetos:
 
